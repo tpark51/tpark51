@@ -6,8 +6,8 @@
 - 📫 How to reach me: lynparkerdevelopment@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I love all things creation...
-       - Dance💃🏽 
-       - Photography📸 
-       - Resin Art🎨 
-       - etc.
+       Dance💃🏽 
+       Photography📸 
+       Resin Art🎨 
+       etc.
 -->
